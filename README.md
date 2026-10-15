@@ -10,3 +10,6 @@ Intrivia itu menurut saya seru dan materi-materinya sangat informatif
 
 ## Kesan Pesan Cluster 14 Sejauh Ini 
 Katingnya baik dan teman-teman seclusterku juga sama
+
+## Harapan Kuliah
+Aku berharap kehidupan kuliahku tetap menyenangkan tidak hanya dalam bermain tetapi juga dalam belajar
